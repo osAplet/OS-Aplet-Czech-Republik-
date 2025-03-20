@@ -1,1 +1,1 @@
-# OS-Aplet-Czech-Republik-
+# OS-Aplet❤️®️ ME-AI 🇨🇿 software pro správu 🌍 Ekosystému Build 
